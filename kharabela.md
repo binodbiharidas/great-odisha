@@ -5,3 +5,4 @@
 -> In that time odisha is known as mingdom of art and tradition.
 -> He make the puri jaganth tampul, sun tampul in konarka,
    linga raja tampul, raja rani tampul.
+-> katak was the cepital of odisha that time.
